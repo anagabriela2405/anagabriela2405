@@ -12,5 +12,3 @@ Meu nome é Ana Gabriela
 anagabrielalino035@gmail.com
 
 @_g.silva014
-
-![descrição do gif](https://media1.tenor.com/m/K0QNIySkzdEAAAAd/dog-smile-eeyeyy1.gif)
